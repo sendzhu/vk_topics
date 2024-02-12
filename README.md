@@ -2,4 +2,4 @@
 
 
 
-![vk_topics1](https://github.com/sendzhu/vk_topics/assets/144147060/348b532e-0cc6-4a98-9fd8-2e3bc58cdf72)
+![vk_topics1](https://github.com/sendzhu/vk_topics/assets/144147060/29c2c609-bfc3-4526-ac76-02d0069228a6)
